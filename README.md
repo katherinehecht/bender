@@ -1,3 +1,3 @@
-Katherine
+Katherine.
   is.
   cool.
